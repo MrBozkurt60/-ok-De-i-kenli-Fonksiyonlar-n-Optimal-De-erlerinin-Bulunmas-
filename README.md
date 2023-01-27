@@ -1,0 +1,1 @@
+# -ok-De-i-kenli-Fonksiyonlar-n-Optimal-De-erlerinin-Bulunmas-
